@@ -1,0 +1,1 @@
+# Kofax-text
